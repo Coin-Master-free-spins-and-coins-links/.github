@@ -109,6 +109,12 @@ If you find this project helpful, please consider giving it a ⭐ on GitHub. You
 
 ---
 
+## Tags
+
+Coin Master, Free Spins, Free Coins, Coin Master Links, Coin Master Daily Rewards, Coin Master Tips, Levvvel Coin Master, Free Spins Links, Free Coins Links, Coin Master Spins, Coin Master Cheats, How to Get Free Spins, Free Coins Today, Coin Master Spins Generator
+
+---
+
 ## 📜 License
 
 This project is licensed under the **MIT License**. Feel free to use and distribute, but don’t forget to give credit!
