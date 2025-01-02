@@ -22,9 +22,9 @@ Here’s a list of **daily updated links** to claim your free spins and coins:
 
 | Date       | Free Spins | Free Coins | Link Status |
 |------------|------------|------------|-------------|
-| Today      | 50 Spins   | 1M Coins   | ✅ [Claim Now](https://hindrise.com/?ss=1999) |
-| Yesterday  | 30 Spins   | 500k Coins | ✅ [Claim Now](https://hindrise.com/?ss=1999) |
-| Two Days Ago | 25 Spins | 300k Coins | ✅ [Claim Now](https://hindrise.com/?ss=1999) |
+| Today      | 50 Spins   | 1M Coins   | ✅ [Claim Now](https://bit.ly/Adsterra-Link) |
+| Yesterday  | 30 Spins   | 500k Coins | ✅ [Claim Now](https://bit.ly/galaksion-link) |
+| Two Days Ago | 25 Spins | 300k Coins | ✅ [Claim Now](https://bit.ly/galaksion-link) |
 
 > ⚡ **Note:** Links are time-sensitive and typically expire within 24-48 hours, so be sure to claim them as soon as possible!
 
